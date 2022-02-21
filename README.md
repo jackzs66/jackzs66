@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jackzs66
 - 👀 I’m interested in music and movie
-- 🌱 I’m currently learning authmtic
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on science 
 - 📫 How to reach me ...
 
